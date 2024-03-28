@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @springggin
 - 👀 I’m interested in looking for good cafes in nyc
-- 🌱 I’m currently learning computer science in NYU!
+- 🌱 now stdying abroad in NYU!
 - 💞️ I’m looking to collaborate on 
 - 📫 bk2930@nyu.edu
 - 😄 Pronouns: she/her
